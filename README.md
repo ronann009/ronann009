@@ -1,4 +1,4 @@
-## BEM VINDOS :🔥💯
+## BEM VINDOS 🔥💯
 
 
 - 🐂 Atualmente estou na lida
